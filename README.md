@@ -12,7 +12,7 @@
 ### The project I have worked on is making a tic tac toe game together with a group of friends.
 
 ## How to contact me
-### WhatsApp: 082127869361
+### WhatsApp: [082127869361](https://wa.me/6282127869361)
 ### Email: alya.naila.tif423@polban.ac.id
 ### Instagram: @alshadilla.p
 
