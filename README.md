@@ -1,3 +1,5 @@
+![Politeknik Negeri Bandung]([http://url/to/img.png](https://shine.co.id/wp-content/uploads/2022/12/Politeknik-Negeri-Bandung-Bandung-800x533.jpg))
+
 # `About Me`
 
 ## **Profile**
